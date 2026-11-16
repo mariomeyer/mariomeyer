@@ -35,6 +35,6 @@
 
 ### Beyond the code
 
-King Chamber of Commerce Board Director. Startup-lab mentor at the Rotman School of Management.
+King Chamber of Commerce Vice President. Startup-lab mentor at the Rotman School of Management.
 
 Writing, speaking and case studies live at **[mariomeyer.ca](https://mariomeyer.ca)** — também disponível em português.
